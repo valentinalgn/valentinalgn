@@ -4,5 +4,6 @@
 
 ### Puedes buscarme en estas redes sociales
 
-[Instagram] https://www.instagram.com/valentinal_g/
-[Facebook] https://www.facebook.com/valentinall14
+[Instagram](https://www.instagram.com/valentinal_g/)
+
+[Facebook](https://www.facebook.com/valentinall14)
